@@ -1,0 +1,8 @@
+- https://www.temu.com/80w-usb-solar-panel-folding-power-bank-outdoor-camping-hiking-phone-charger-g-601100075714934.html
+- https://www.temu.com/100w-monocrystalline-silicon-solar-panel-12v-high--photovoltaic-module-off--supply-suitable-for-home-rv-yacht--g-601099653279148.html
+- https://www.temu.com/30w-60w-100w-portable-solar-panel-charger-featuring-18v-mc4-12v-and-2-usb-a-with-qc3-0-usb-c-pd18w-generator-support-g-601099592327002.html
+- https://www.temu.com/400-watt-solar-panel--sheet-single-side-12v-high--volt--panel-4pcs-100-watt-solar-panel---for-home-rv-boat-g-601100800026218.html
+- https://www.temu.com/high--100w-monocrystalline-solar-panel-12v--rvs-off-grid-use-durable-aluminum-alloy-construction-g-601099739357030.html
+- https://www.temu.com/600w-solar-panel-charger-monocrystalline-silicon-100a-charge-controller-solar-panel-kit-with-extension-cable-battery-clip-for-rv-outdoor-camping-solar-car-charger-solar-power-bank-portable-charger-portable-solar-panel-solar-blankets-for-charging---supply-camping-solar-setup--portable-setup-highefficiency-panel-reliable-controller-solar-charging-system-campers-and---living-g-601102929452331.html
+- https://www.temu.com/600w-solar-panel-kit-with-100a-mppt-charge-controller-extension-cable-monocrystalline-solar-panels-battery-clip-connector-portable-lightweight-design-for--boat-off-grid-outdoor--no-battery-included-solar-charging-system-solar-panel-with-built-in-battery-car-solar-panel-solar-phone-charger-solar-accessories-solar-panel-foldable-rv--rv-travelers-camping-enthusiasts-g-601102939381876.html
+- 
