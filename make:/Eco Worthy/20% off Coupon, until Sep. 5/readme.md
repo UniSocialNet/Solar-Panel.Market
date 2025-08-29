@@ -4,3 +4,5 @@
 HAPPY30TH
 
 Ends 9/5. Max $500. Select items. 2x use.
+
+https://www.ebay.com/e/daily-deals/25-rw35-ebay-30th
