@@ -1,3 +1,3 @@
 # Solar-Panel.Market
-Market Data for the Solar Energy industy.
+Solar Panel Market Data
 
